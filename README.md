@@ -1,2 +1,2 @@
-# Historia-de-JNS
+# Historia-de-JNS-(Jeans)
 Página fan
